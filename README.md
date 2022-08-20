@@ -1,1 +1,1 @@
-# Opportunities_Women-in-Tech
+# Opportunities for Women-in-Tech
